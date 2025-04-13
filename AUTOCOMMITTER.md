@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+Cows moo with regional accents.
