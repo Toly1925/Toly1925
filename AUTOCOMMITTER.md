@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+There are more fake flamingos in the world than real ones.
