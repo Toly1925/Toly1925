@@ -1,1 +1,1 @@
-There’s a species of jellyfish that can live forever.
+Snails can sleep for three years at a time.
