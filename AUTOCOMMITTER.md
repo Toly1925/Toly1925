@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+Cows moo with regional accents.
