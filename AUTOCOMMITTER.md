@@ -1,1 +1,1 @@
-The total weight of all ants on Earth is roughly equal to that of all humans.
+Your taste buds have a lifespan of about 10 days.
