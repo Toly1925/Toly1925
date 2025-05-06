@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+Rabbits can’t vomit.
