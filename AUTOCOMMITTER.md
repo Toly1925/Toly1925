@@ -1,1 +1,1 @@
-Your taste buds have a lifespan of about 10 days.
+There’s a species of jellyfish that can live forever.
