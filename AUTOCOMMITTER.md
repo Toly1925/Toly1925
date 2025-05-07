@@ -1,1 +1,1 @@
-Rabbits can’t vomit.
+The hashtag symbol used to be called the pound sign.
