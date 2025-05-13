@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+The total weight of all ants on Earth is roughly equal to that of all humans.
