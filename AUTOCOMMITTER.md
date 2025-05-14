@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+Newborns don’t shed tears until about two weeks old.
