@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+There’s a basketball court on the top floor of the U.S. Supreme Court building — it’s nicknamed "the highest court in the land."
