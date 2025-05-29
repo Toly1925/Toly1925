@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+Avocados are toxic to birds.
