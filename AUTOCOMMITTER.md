@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Antarctica is the only continent without reptiles.
