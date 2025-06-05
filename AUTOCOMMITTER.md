@@ -1,1 +1,1 @@
-Worms can have up to five hearts.
+Snails can sleep for three years at a time.
