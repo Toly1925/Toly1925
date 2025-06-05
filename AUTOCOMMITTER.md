@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+Sharks existed before trees.
