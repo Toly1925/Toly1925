@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Humans glow in the dark — very faintly.
