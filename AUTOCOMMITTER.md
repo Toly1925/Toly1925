@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+Worms can have up to five hearts.
