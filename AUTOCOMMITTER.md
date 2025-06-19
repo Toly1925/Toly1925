@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+A snail can grow back its eye if it gets cut off.
