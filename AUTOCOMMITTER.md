@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+The hashtag symbol is technically called an octothorpe.
