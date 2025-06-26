@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
