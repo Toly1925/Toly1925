@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+A bolt of lightning strikes somewhere on Earth 100 times every second.
